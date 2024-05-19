@@ -8,6 +8,6 @@ meu nome é Renan
 @rnzin.ll
 +55🇧🇷
 flamenguista⚫🔴
-![](https://tenor.com/pt-BR/view/naruto-rage-naruto-angry-cool-naruto-bing-chilling-gif-27452332)
+![](https://media1.tenor.com/m/hsNRQ_cTkjcAAAAd/naruto-rage-naruto-angry.gif)
 
   
