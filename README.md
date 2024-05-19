@@ -6,7 +6,9 @@ meu nome é Renan
 - utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 
 
 @rnzin.ll
+
 +55🇧🇷
+
 flamenguista⚫🔴
 
 ![](https://media1.tenor.com/m/UenJb9aKpasAAAAC/naruto-walk.gif)
