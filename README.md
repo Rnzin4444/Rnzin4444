@@ -11,6 +11,6 @@ meu nome é Renan
 
 flamenguista⚫🔴
 
-![](https://media1.tenor.com/m/luoeCRfaZ3oAAAAC/flamengo-flamengo-fan-token.gif)
+![](https://media.tenor.com/21jFXbGoRPIAAAAi/flamengo-urubu-flamengo.gif)
 
   
