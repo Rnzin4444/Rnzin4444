@@ -8,6 +8,6 @@ meu nome é Renan
 @rnzin.ll
 +55🇧🇷
 flamenguista⚫🔴
-![](https://tenor.com/dDsEtS4sSYO.gif)
+![](https://tenor.com/dDsEtS4sSYO/naruto.gif)
 
   
