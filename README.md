@@ -1,4 +1,4 @@
-### boas vindas ao meu perfil💙
+### boas vindas ao meu perfil😊
 
 meu nome é Renan Luiz 
 - Estou estudando no alura 
