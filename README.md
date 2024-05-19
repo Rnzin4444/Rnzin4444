@@ -1,6 +1,6 @@
 ### boas vindas ao meu perfil😊
 
-meu nome é Renan Luiz 
+meu nome é Renan 
 - Estou estudando no alura 
 - Estou me desenvolvendo na linguagem Java script
 - utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos 
