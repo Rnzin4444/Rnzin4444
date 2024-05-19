@@ -9,6 +9,6 @@ meu nome é Renan
 +55🇧🇷
 flamenguista⚫🔴
 
-![](https://media1.tenor.com/m/QizrSSmMTOYAAAAd/gtr.gif)
+![](https://media1.tenor.com/m/UenJb9aKpasAAAAC/naruto-walk.gif)
 
   
